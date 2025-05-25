@@ -11,4 +11,4 @@ Thanks for checking it out!
 
 
 ## Contact
-if you would like to connect feel free to reach out on www.linkedin.com/in/erfan-atabzadeh-324182351.
+If you would like to connect, feel free to reach out on www.linkedin.com/in/erfan-atabzadeh-324182351.
